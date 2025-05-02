@@ -1,0 +1,1 @@
+# smpalomar.tech
